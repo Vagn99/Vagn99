@@ -1,1 +1,1 @@
-Empty repo, empty profile 🤷🏼‍♂️
+Empty repo 🤷🏼‍♂️
